@@ -13,7 +13,3 @@ did they not know the silly gang had walked through
 rick and morty
 
 what if
-
-
-## movies
-
