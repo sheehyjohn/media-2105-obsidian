@@ -1,0 +1,9 @@
+- act of union
+- bloody sunday
+- partition
+- bloody sunday
+- james mcClean & Geri Halliway
+	- https://youtu.be/IjMl-_owmIg
+	- interesting that there is mention of National Front
+	- But not the Imperisalist Poison
+		- take it as the direct and then multiple secondary effects
