@@ -18,3 +18,8 @@ His value as an officer
 Hopefully and Enthusiastic 
 
 # Washed up Revenger
+
+## chapter 2 or is it 1
+He got into these alcamy books
+Dad dismissed him rather than valuing the person who
+Which only lead him onto more
