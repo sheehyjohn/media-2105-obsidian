@@ -34,3 +34,7 @@ The monster was supposed to be beautiful
 Frank was happy when he ran away
 but where did the education come form, just observing other people
 Is he a person? Well definately not by any of there 
+
+### Is evil inate? Frank is the evil one...
+...and helpfully his brothers death means he'll never see that
+The intention of action, and the releasing into the world without any supports or guidance
