@@ -29,3 +29,8 @@ Excellent student after initially dismissing and definitely made it to postgradu
 So it's the science fiction elements of mixing this alchemy of pre-science with this modern and professional science training....excellently grounds it within
 
 The monster was supposed to be beautiful 
+
+### Where is the education
+Frank was happy when he ran away
+but where did the education come form, just observing other people
+Is he a person? Well definately not by any of there 
