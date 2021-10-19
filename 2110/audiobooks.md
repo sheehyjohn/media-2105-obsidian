@@ -23,3 +23,9 @@ Hopefully and Enthusiastic
 He got into these alcamy books
 Dad dismissed him rather than valuing the person who
 Which only lead him onto more
+
+Excellent student after initially dismissing and definitely made it to postgraduate status
+
+So it's the science fiction elements of mixing this alchemy of pre-science with this modern and professional science training....excellently grounds it within
+
+The monster was supposed to be beautiful 
