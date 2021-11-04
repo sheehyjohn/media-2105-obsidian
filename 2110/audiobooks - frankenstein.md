@@ -30,3 +30,18 @@ Is he a person? Well definately not by any of there
 The intention of action, and the releasing into the world without any supports or guidance
 
 
+## this is your funeral!
+What a dick thinking his experience is the final moment for all...this is die funeral
+
+Oh and he immediately didn't inform the police or form a hunting party...a lynch mob if that's the correct use of the phrase
+
+      No one can conceive the anguish I suffered 
+
+That's a broad calculation of your emotions being superior or higher to others....others can't understand your depth of emotion....yeah because you caused it by your arrogance and lack of responsibility 
+
+### depth of feeling
+She is about to die but couldn't understand my anguish...dick head
+
+## Volume2
+
+OK so he is suicidal on the lake....but can't demolish his family....he is a very intense emotional person 
