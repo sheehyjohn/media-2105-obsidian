@@ -1,0 +1,1 @@
+https://www.theguardian.com/books/2021/nov/13/crooks-creeps-and-indecent-proposals-emily-ratajkowski-on-being-paid-to-hang-out-with-rich-men?utm_source=pocket-newtab-global-en-GB
