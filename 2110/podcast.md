@@ -2,7 +2,7 @@
 
 
 ## 211004
-![[Pasted image 20211010231447.png]]
+![[podcast - Pasted image 20211010231447.png]]
 
 The football was good after Mo's amaze ball goal
 
