@@ -1,5 +1,9 @@
-Philip Glass
-
+## toGetTo
+- Philip Glass
+- Fenne Lilly
+- Black Country, New Road
+- Black Midi
+- Wet Leg
 
 ## Irish Albums
 
@@ -27,7 +31,7 @@ Philip Glass
 10. Turnstile - Glow On
 11. Sons Of Kemet - Black To The Future
 12. Foy Vance - Signs of life
-13. For Those I Love - For Those I Love
+13. For Those I Love - For Those I Love 
 14. Tinashe  - 333
 15. Wolf Alice - Blue Weekend
 

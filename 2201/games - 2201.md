@@ -1,3 +1,12 @@
+
+## Horizon Zero Dawn
+## God of War
+## Detroit Beyond Human
+## Zombie Island
+
+## Beyond Two Souls
+
+
 ## the last of us - part 2
 ### Gun Fighting
 Waiting for the target to get close and big enough
@@ -10,3 +19,5 @@ USed a stun bomb on all of us and then
 Instinctive stuff
 
 The Scardsr thinking i am a wolf
+
+

@@ -8,7 +8,13 @@ Main protagonist getting killed in a fan
 ## Eternals
 Golden Hour Paw Patrol
 
+## Midsummer
 
+## Matrix - Resurrections
+Loved the first bit and forgettable second half
+
+## The Day Shall Come
+Chris Morris
 
 
 
