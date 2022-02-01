@@ -13,3 +13,9 @@ On the second listen through it's absolutely magic
 
 The art turn of phrase should be put into lyrics
 
+## Enemy at the Gates
+### William Craig
+The Battle for Stalingrad
+## Battle of St
+being at the point of two empires crushing against each other 
+
