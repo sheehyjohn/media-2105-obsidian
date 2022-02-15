@@ -3,7 +3,7 @@
 
 ## Seal Team
 Andy delighted he finally got to see some action.
-Main protagonist getting killed in a fan
+Main antagonist getting killed in a fan
 
 ## Eternals
 Golden Hour Paw Patrol
