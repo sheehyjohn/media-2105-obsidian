@@ -4,6 +4,8 @@
 - Black Country, New Road
 - Black Midi
 - Wet Leg
+- Dry Cleaning
+- Big Thief
 
 ## Irish Albums
 
